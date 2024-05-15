@@ -15,6 +15,6 @@ When I’m not coding, you’ll find me jamming to indie rock or sipping chai wh
 
 📫 Connect with Me:
 🐦 Twitter: @2srkalita
-📸 Instagram: @2thetusharkalita
+📸 Instagram: @thetusharkalita
 💼 LinkedIn: Tushar Kalita
 🌟 Open Source Enthusiast | Chai Lover | Curious Coder
